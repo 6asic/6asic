@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @6asic
-- 👀 I’m interested in computer basics
+- 👀 I’m interested in life
 
 
 <!---
